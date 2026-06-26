@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm John Terang
-**Frontend Developer || Intern **
+**Frontend Developer || Intern**
 
 Email Me 👉 ✉️ **connect.john.dev@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
